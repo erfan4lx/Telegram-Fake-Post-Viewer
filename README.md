@@ -1,13 +1,16 @@
 # Telegram-Fake-Posts-Viewer
 Send fake views with account or proxy socks4/5 , http to your destination posts
-
 Contact with me to get the Password of Zip file on :
 
  Telegram : https://t.me/erfan4lx1
   
  Email : erfan4lx@gmail.com
 
+Show full video on YouTube : https://youtu.be/pfxc84QayxQ
 
+Show demo video on Instagram : In recording...
+ 
+ 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
 🆔My Telegram Channel : https://t.me/Erfan4lxTeam1
