@@ -5,7 +5,7 @@ Purchase it on my website : https://erfan4lx.com/product/telegram-fake-post-view
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx1
+ Telegram : https://t.me/erfan4lx
   
  Email : erfan4lx@gmail.com
 
@@ -15,7 +15,7 @@ Show demo video on Instagram : https://www.instagram.com/tv/Cda36HJFq9x/
  
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/Erfan4lxTeam1
+🆔My Telegram Channel : https://t.me/erfan4lx_channel
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
